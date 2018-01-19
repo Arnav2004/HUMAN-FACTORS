@@ -1,4 +1,6 @@
 untitled.html
 figures/Book1
 469eh6k1lkg.html
+figures/Book2
+5slvp66vsmo.html
 i8t9pvd9mt8.html
