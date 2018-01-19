@@ -7,4 +7,5 @@ figures/Book4
 i6oos5c7g8o.html
 figures/Book2
 5slvp66vsmo.html
+figures/a
 i8t9pvd9mt8.html
