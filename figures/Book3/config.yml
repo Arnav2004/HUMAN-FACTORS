@@ -8,7 +8,7 @@ grid:
   rows: 1
   columns: 1
   grid_elements:
-  - path: figures/Book3/figures_Book3_Book3.xlsx
+  - path: figures/Book3/Book3.xlsx
     type: table
     from:
     - 1
@@ -17,4 +17,4 @@ grid:
     - 1
     - 1
     folder_url: "/users/218941/articles/280589/master/folder/figures/Book3"
-    url: "/users/218941/articles/280589/master/file/figures/Book3/figures_Book3_Book3.xlsx"
+    url: "/users/218941/articles/280589/master/file/figures/Book3/Book3.xlsx"
