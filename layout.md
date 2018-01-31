@@ -11,6 +11,7 @@ figures/d
 figures/s
 figures/a
 i8t9pvd9mt8.html
+figures/af9f97a703841701264fb3e452a971699e595326
 figures/281f7b166d2654bf6cbe0eecdfe6529208d96c51
 figures/7a584589024cc95c6966edf84a1e6e1aa2d8980c
 qaso4kuimr8.html
