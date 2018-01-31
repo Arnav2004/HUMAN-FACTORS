@@ -22,3 +22,5 @@ figures/1
 80vap2p0j5o.html
 figures/2
 mk24suc13so.html
+figures/3
+ano12frr2kg.html
