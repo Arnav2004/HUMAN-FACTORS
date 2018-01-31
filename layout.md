@@ -29,7 +29,6 @@ figures/2
 mk24suc13so.html
 figures/3
 ano12frr2kg.html
-figures/hgfglcdl,hb
 50bbm1r58d.html
 en02h9ogcb8.html
 oc731r4mvj8.html
