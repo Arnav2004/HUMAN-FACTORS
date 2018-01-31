@@ -17,6 +17,7 @@ figures/7a584589024cc95c6966edf84a1e6e1aa2d8980c
 qaso4kuimr8.html
 figures/siteplan2
 mietp0a5r88.html
+figures/3
 figures/2
 8k7it3vkiao.html
 figures/1
