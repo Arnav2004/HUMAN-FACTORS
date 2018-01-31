@@ -1,0 +1,19 @@
+---
+version: 2
+multicolumn: false
+web-width: 500px
+align: center
+float: h!
+grid:
+  rows: 1
+  columns: 1
+  grid_elements:
+  - path: figures/af9f97a703841701264fb3e452a971699e595326/af9f97a703841701264fb3e452a971699e595326.png
+    type: static
+    from:
+    - 1
+    - 1
+    to:
+    - 1
+    - 1
+    url: "/users/218941/articles/280589/master/file/figures/af9f97a703841701264fb3e452a971699e595326/af9f97a703841701264fb3e452a971699e595326.png"
