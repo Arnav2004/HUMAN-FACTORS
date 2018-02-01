@@ -41,8 +41,6 @@ figures/dl
 figures/nasashit 2 ROXX
 l1io76pv678.html
 7p71sefukco.html
-fcbd15kr1bg.html
-jjb3crava2o.html
 78645lp1m0g.html
 oc731r4mvj8.html
 219haueo758.html
