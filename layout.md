@@ -38,6 +38,8 @@ figures/209723c5428db9d04bbf1621e0d55a7f585e878a
 1gqiilanrn.html
 figures/dl
 77lqiumtb6.html
+figures/nasashit 2 ROXX
+l1io76pv678.html
 7p71sefukco.html
 fcbd15kr1bg.html
 jjb3crava2o.html
