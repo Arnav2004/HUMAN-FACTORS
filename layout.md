@@ -3,6 +3,8 @@ figures/Copy of CONSUMABLES (non food items)
 ric0m0t4sig.html
 figures/Copy of CONSUMABLES
 mbk6v8i1j1o.html
+figures/AB
+rd5vtok6lfo.html
 5hqsdrqlqc.html
 figures/Book1
 469eh6k1lkg.html
