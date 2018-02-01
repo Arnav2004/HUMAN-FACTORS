@@ -36,6 +36,8 @@ figures/5ea00c30ee66f6b87d0de68b78555f0dbd6ae42c
 figures/520e68d851b5ca5e177b6a5d245651aae44c9f99
 figures/209723c5428db9d04bbf1621e0d55a7f585e878a
 1gqiilanrn.html
+figures/3d-floor-plan-office-building
+6aecpkpbcpg.html
 figures/dl
 77lqiumtb6.html
 figures/nasashit 2 ROXX
