@@ -12,7 +12,6 @@ figures/Book4
 i6oos5c7g8o.html
 figures/Book2
 5slvp66vsmo.html
-ov27qsqtjn8.html
 figures/nasashit
 l5tpkka0cjg.html
 figures/d
