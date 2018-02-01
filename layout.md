@@ -34,5 +34,7 @@ figures/3
 ano12frr2kg.html
 figures/5ea00c30ee66f6b87d0de68b78555f0dbd6ae42c
 1gqiilanrn.html
+figures/520e68d851b5ca5e177b6a5d245651aae44c9f99
+4b5h7ngabog.html
 oc731r4mvj8.html
 219haueo758.html
