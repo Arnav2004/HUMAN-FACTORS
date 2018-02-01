@@ -8,7 +8,7 @@ grid:
   rows: 1
   columns: 1
   grid_elements:
-  - path: figures/Copy of CONSUMABLES/Copy of CONSUMABLES.xlsx
+  - path: figures/Copy of CONSUMABLES/figures_Copy of CONSUMABLES_Copy of CONSUMABLES.xlsx
     type: table
     from:
     - 1
@@ -16,5 +16,5 @@ grid:
     to:
     - 1
     - 1
-    url: "/users/218941/articles/280589/master/file/figures/Copy%20of%20CONSUMABLES/Copy%20of%20CONSUMABLES.xlsx"
     folder_url: "/users/218941/articles/280589/master/folder/figures/Copy of CONSUMABLES"
+    url: "/users/218941/articles/280589/master/file/figures/Copy%20of%20CONSUMABLES/figures_Copy%20of%20CONSUMABLES_Copy%20of%20CONSUMABLES.xlsx"
