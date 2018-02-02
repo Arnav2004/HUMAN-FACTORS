@@ -42,5 +42,7 @@ figures/A
 vq1k9ig4pl8.html
 figures/dl
 77lqiumtb6.html
+figures/NASA
+hg217hf3ckg.html
 78645lp1m0g.html
 219haueo758.html
