@@ -42,7 +42,6 @@ figures/A
 6aecpkpbcpg.html
 figures/dl
 77lqiumtb6.html
-figures/nasashit 2 ROXX
 l1io76pv678.html
 qfls10mj8gg.html
 7p71sefukco.html
