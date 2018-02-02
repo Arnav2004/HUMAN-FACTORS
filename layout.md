@@ -42,7 +42,6 @@ figures/A
 vq1k9ig4pl8.html
 figures/dl
 77lqiumtb6.html
-94irv42a1no.html
 l1io76pv678.html
 qfls10mj8gg.html
 7p71sefukco.html
