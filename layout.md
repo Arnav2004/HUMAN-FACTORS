@@ -44,7 +44,6 @@ figures/dl
 77lqiumtb6.html
 figures/nasashit 2 ROXX
 l1io76pv678.html
-figures/Copy of Copy of CONSUMABLES (non food items)
 qfls10mj8gg.html
 7p71sefukco.html
 78645lp1m0g.html
