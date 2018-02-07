@@ -123,6 +123,4 @@ ns9v0k6ht6.html
 a07lr4ugul8.html
 ghao3or2fmg.html
 nsqpujhid8.html
-pkmcovedp5o.html
-78645lp1m0g.html
 219haueo758.html
