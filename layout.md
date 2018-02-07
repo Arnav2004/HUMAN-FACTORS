@@ -67,15 +67,6 @@ l7lbcg7bi88.html
 r9pvqbnqer8.html
 sg852sg9p4g.html
 quh3ps5eg9.html
-n06vfuh2k.html
-397gt712bd8.html
-pfirh7pt02.html
-6qvghvhlpb8.html
-trt8220bfo8.html
-982idifs088.html
-vfocef5so3.html
-ktafk0v52p8.html
-4olh1t6pccg.html
 cj45vjn22dg.html
 4ibbbk2emd.html
 u08846ph8a8.html
