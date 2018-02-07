@@ -53,8 +53,6 @@ q7ajbeud1v8.html
 poruqehcje8.html
 ljc7hdt3o3.html
 pqqcrqsga8g.html
-lh65abn8sug.html
-p5abjlplrog.html
 dfgf7kjm1a8.html
 o2vuhr46tco.html
 hnpip30hpbo.html
