@@ -108,12 +108,5 @@ on1kg7j19q8.html
 nsdeijrokho.html
 eq41o2d9qn8.html
 qlnpono4egg.html
-tc7ouflcef.html
-ot3bmnpm7s.html
-mgte2a4c0oo.html
-lo0d2vgm2vg.html
-u2eqo1lflr.html
-pi31d4e2bng.html
-79t6pd20vs8.html
 ghao3or2fmg.html
 219haueo758.html
