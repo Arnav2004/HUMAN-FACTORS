@@ -104,9 +104,5 @@ b94t86nps5o.html
 on1kg7j19q8.html
 1r6o2f7si4.html
 7enafp13rig.html
-9kngfgdg2n.html
-nsdeijrokho.html
-eq41o2d9qn8.html
-qlnpono4egg.html
 ghao3or2fmg.html
 219haueo758.html
