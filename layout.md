@@ -124,10 +124,6 @@ a07lr4ugul8.html
 ghao3or2fmg.html
 nl591qd9n9g.html
 ioga5s6pn58.html
-ja6vooj654.html
-d44cq4buqa.html
-ohsqnslq0p.html
-0emi8jga2cg.html
 nsqpujhid8.html
 pkmcovedp5o.html
 78645lp1m0g.html
