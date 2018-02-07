@@ -116,8 +116,5 @@ u2eqo1lflr.html
 pi31d4e2bng.html
 79t6pd20vs8.html
 06tdtmohc1.html
-j2i90jvj8go.html
-p9l3uthrgd.html
-4r24jq1if48.html
 ghao3or2fmg.html
 219haueo758.html
