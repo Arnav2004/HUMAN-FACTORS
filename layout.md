@@ -40,6 +40,8 @@ figures/209723c5428db9d04bbf1621e0d55a7f585e878a
 figures/A
 6aecpkpbcpg.html
 vq1k9ig4pl8.html
+figures/Scan_20180207 (2)
+eet3r200pf8.html
 figures/dl
 77lqiumtb6.html
 figures/a1
