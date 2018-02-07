@@ -128,9 +128,6 @@ ja6vooj654.html
 d44cq4buqa.html
 ohsqnslq0p.html
 0emi8jga2cg.html
-ef3josapr4.html
-gnkvvblkp68.html
-nustgmunmgo.html
 nsqpujhid8.html
 pkmcovedp5o.html
 78645lp1m0g.html
