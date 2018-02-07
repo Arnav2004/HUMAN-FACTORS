@@ -130,8 +130,6 @@ ns9v0k6ht6.html
 a07lr4ugul8.html
 ghao3or2fmg.html
 nl591qd9n9g.html
-oi8s248qqv8.html
-c9030jfsjc8.html
 ioga5s6pn58.html
 ja6vooj654.html
 d44cq4buqa.html
